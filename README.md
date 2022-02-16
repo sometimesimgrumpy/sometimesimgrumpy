@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sometimesimgrumpy
+- I can be found going to local metal shows, taking (bad) pictures, and making friends. I also spend time helping moderate on twitch and discord for a couple content creators.
+- 👀 I’m interested in learning more about coding, problem-solving, and creative expression through technology.
+- 🌱 I’m currently learning coding, drawing portraits, and ukelele.
+- 💞️ I’m looking to collaborate on creative projects and puzzles!
+- 📫 How to reach me - easiest to find me on ig @sometimesimgrumpy
